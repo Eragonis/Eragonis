@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Eragonis
+- 👋 Hi, I’m @Eragonis わたくし名前は、エラご二ス
 - 👀 I’m interested in 魔都精兵のスレイブ/ アカメが斬る/ デート・ア・ライブ/ デート・ア・バレット/ ベルセルク
 - 🌱 I’m currently learning 日本語
 <!--
